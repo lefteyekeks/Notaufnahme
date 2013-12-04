@@ -1,4 +1,0 @@
-Notaufnahme
-===========
-
-Belegarbeit GI
